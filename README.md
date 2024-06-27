@@ -1,6 +1,6 @@
 🙋🏻‍♂️ Hello! Tirth here, a curious mind who tries to find answers through data.
 
-👁️ I'm interested in helping businesses take data backed decisions.
+👁️ I'm interested in helping businesses take data-driven decisions.
 
 🏋️ Gained knowledge in domains of marketing and analytics through experience.
 
