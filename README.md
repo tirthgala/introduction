@@ -1,8 +1,8 @@
 🙋🏻‍♂️ Hello! Tirth here, a curious mind who tries to find answers through data.
 
-👁️ I'm interested in helping businesses take data backed decisions in domains of strategy or marketing.
+👁️ I'm interested in helping businesses take data backed decisions.
 
-🏋️ Gained some knowledge in domains of strategy, marketing and analytics through work and academics.
+🏋️ Gained knowledge in domains of marketing and analytics through experience.
 
 🏃 Adapting and executing better techniques to find solutions drives my day.
 
